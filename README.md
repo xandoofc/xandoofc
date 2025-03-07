@@ -1,6 +1,6 @@
 # Olá, eu sou xando! ✨🚀
 
-![Bem-vindo]([https://tenor.com/view/saul-goodman3d-saul-better-call-saul-saulgoodman-gif-26549523](https://media1.tenor.com/m/LAI8l_qXRHYAAAAd/saul-goodman3d-saul.gif))
+![Bem-vindo](https://tenor.com/view/saul-goodman3d-saul-better-call-saul-saulgoodman-gif-26549523](https://media1.tenor.com/m/LAI8l_qXRHYAAAAd/saul-goodman3d-saul.gif))
 
 ---
 
