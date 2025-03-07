@@ -1,7 +1,6 @@
 # Olá, eu sou xando! ✨🚀
 
 !Bem-vindo
-https://tenor.com/pt-BR/view/saul-goodman3d-saul-better-call-saul-saulgoodman-gif-26549523
 ---
 
 ## Minhas Habilidades ⚡
